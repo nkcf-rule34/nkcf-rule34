@@ -1,6 +1,6 @@
-### Hey! 👋
+### y
 
-I'm funny developer that is doing many funny thingies.
+how to code
 
-### Stats 👑
+### profile views 👇
 ![](https://count.getloli.com/get/@nkcf-rule34)
